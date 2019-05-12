@@ -1,0 +1,2 @@
+# Lexmon
+sangat bermanfaat
